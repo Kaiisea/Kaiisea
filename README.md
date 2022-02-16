@@ -1,4 +1,4 @@
-### Hi there 👋
+### I'm currently working in improve it. See you soon 💜
 
 <!--
 **Kaiisea/Kaiisea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
